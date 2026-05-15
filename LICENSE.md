@@ -1,4 +1,4 @@
-# 
+# elite blur sniper bot | gas-fee-estimation + floor-price-tracking offers the most advanced blur sniper bot, with gas-fee-estimation and floor-price-tracking. Ideal for
 
 
 
